@@ -1,5 +1,3 @@
-Chapter 8: Navigating Difficult Conversations and Conflict
-==========================================================
 
 In the workplace, conflict and difficult conversations are inevitable. Whether it is a disagreement with a colleague, a performance issue, or a difficult decision that needs to be made, navigating these situations can be challenging. In this chapter, we will discuss how to identify common sources of conflict and difficult conversations, develop strategies for managing conflict and handling difficult conversations, and build resilience and manage stress in challenging situations.
 

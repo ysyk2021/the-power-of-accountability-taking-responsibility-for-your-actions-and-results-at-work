@@ -1,5 +1,3 @@
-Understanding the Importance of Holding Yourself and Others Accountable
-===========================================================================================================================
 
 Holding yourself and others accountable is critical for achieving success in the workplace. In this chapter, we will discuss the importance of holding yourself and others accountable.
 

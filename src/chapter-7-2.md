@@ -1,5 +1,3 @@
-Developing Strategies for Giving and Receiving Feedback Effectively
-=======================================================================================================================
 
 Holding yourself and others accountable is critical for achieving success in the workplace. One of the most effective ways to do this is by giving and receiving feedback effectively. In this chapter, we will discuss strategies for developing these skills.
 

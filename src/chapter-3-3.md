@@ -1,5 +1,3 @@
-Tailoring Your Approach to Different Types of Tasks and Responsibilities
-===========================================================================================================================
 
 Developing an accountability framework is essential for achieving success in the workplace. In this chapter, we will discuss how to tailor your approach to different types of tasks and responsibilities, including setting priorities, delegating effectively, and managing your time.
 

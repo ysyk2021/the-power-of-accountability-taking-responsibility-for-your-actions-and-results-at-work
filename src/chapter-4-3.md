@@ -1,5 +1,3 @@
-Using Metrics and Benchmarks to Measure Progress and Success
-=======================================================================================================
 
 In the previous chapters, we discussed the importance of accountability and how to take responsibility for your actions and results at work. In this chapter, we will focus on setting goals and expectations, and how to use metrics and benchmarks to measure progress and success.
 
@@ -55,5 +53,4 @@ Benchmarking involves comparing your performance against industry standards or b
 Data provides valuable insights into your performance and helps you make informed decisions about where to focus your resources and efforts.
 
 By setting clear goals and expectations, and using metrics and benchmarks to measure progress and success, you can ensure that you and your team are aligned and working towards a common goal. This promotes accountability and encourages a culture of continuous improvement and learning.
-
 

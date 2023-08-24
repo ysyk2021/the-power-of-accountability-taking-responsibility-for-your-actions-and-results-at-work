@@ -1,5 +1,3 @@
-Chapter 5: Taking Ownership of Your Performance
-===============================================
 
 Taking ownership of your work and results is a critical component of accountability in the workplace. In this chapter, we will discuss the importance of taking ownership, strategies for self-motivation and self-discipline, and overcoming obstacles and challenges with resilience and determination.
 

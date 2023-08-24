@@ -1,5 +1,3 @@
-Assessing Your Own Accountability Needs and Goals
-====================================================================================================
 
 Developing an accountability framework is critical for taking responsibility for your actions and results in the workplace. In this chapter, we will discuss how to assess your own accountability needs and goals.
 

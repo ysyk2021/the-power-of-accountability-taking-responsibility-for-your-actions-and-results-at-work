@@ -1,5 +1,3 @@
-Developing Strategies for Building and Maintaining Trust with Others
-===============================================================================================================
 
 Building trust and credibility is essential for accountability in the workplace. In this chapter, we will discuss how to develop strategies for building and maintaining trust with others, including being transparent, reliable, and consistent.
 

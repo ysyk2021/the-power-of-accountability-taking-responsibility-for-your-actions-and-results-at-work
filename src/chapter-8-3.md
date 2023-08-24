@@ -1,5 +1,3 @@
-Building Resilience and Managing Stress in Challenging Situations
-=============================================================================================================================
 
 Navigating difficult conversations and conflict can be stressful and emotionally challenging. In this chapter, we will discuss how to build resilience and manage stress in these situations, including practicing self-care, seeking support from others, and reframing our mindset.
 

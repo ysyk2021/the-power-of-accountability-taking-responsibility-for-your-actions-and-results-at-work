@@ -1,5 +1,3 @@
-Chapter 3: Developing an Accountability Framework
-=================================================
 
 Developing an accountability framework is essential for success in the workplace. In this chapter, we will discuss how to assess your own accountability needs and goals, create a framework for accountability based on shared values and priorities, and tailor your approach to different types of tasks and responsibilities.
 

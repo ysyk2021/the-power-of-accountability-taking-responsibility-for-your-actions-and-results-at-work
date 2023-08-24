@@ -1,5 +1,3 @@
-Chapter 6: Building Trust and Credibility
-=========================================
 
 Trust and credibility are critical components of accountability in the workplace. In this chapter, we will discuss how to encourage trust and credibility through transparency and honesty, develop strategies for building and maintaining trust with others, and handle mistakes and failures with integrity and accountability.
 

@@ -1,5 +1,3 @@
-Developing SMART Goals and Objectives
-================================================================================
 
 Setting goals and expectations is essential for accountability in the workplace. In this chapter, we will discuss how to develop SMART goals and objectives, including being specific, measurable, achievable, relevant, and time-bound.
 

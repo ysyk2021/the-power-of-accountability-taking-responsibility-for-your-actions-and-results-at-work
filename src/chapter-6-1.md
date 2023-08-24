@@ -1,5 +1,3 @@
-Encouraging Trust and Credibility through Transparency and Honesty
-=============================================================================================================
 
 Transparency and honesty are essential for building trust and credibility in the workplace. In this chapter, we will discuss how to encourage trust and credibility through transparency and honesty, including being open, communicating clearly, and demonstrating integrity.
 

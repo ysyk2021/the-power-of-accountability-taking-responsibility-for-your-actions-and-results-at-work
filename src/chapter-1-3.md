@@ -1,5 +1,3 @@
-The Challenges and Opportunities of Taking Responsibility for Your Actions and Results at Work
-=========================================================================================================================================
 
 Accountability is a critical component of success in the workplace. It involves taking responsibility for your actions and results, and being willing to be held responsible by others. In this chapter, we will discuss the challenges and opportunities of taking responsibility for your actions and results at work.
 

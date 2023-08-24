@@ -1,5 +1,3 @@
-Identifying Common Barriers to Effective Accountability
-==================================================================================================================
 
 Effective accountability is essential for achieving success in the workplace. However, there are many barriers that can prevent us from being accountable. In this chapter, we will discuss some of the common barriers to effective accountability.
 

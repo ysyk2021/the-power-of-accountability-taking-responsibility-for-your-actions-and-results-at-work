@@ -1,5 +1,3 @@
-Recognizing the Different Factors that Impact Accountability
-=======================================================================================================================
 
 Effective accountability is not just about taking responsibility for your actions and results. It's also about understanding the different psychological factors that impact our ability to be accountable. In this chapter, we will discuss some of the different factors that impact accountability.
 

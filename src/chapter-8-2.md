@@ -1,5 +1,3 @@
-Developing Strategies for Managing Conflict and Handling Difficult Conversations
-============================================================================================================================================
 
 Navigating difficult conversations and conflict is a critical part of accountability in the workplace. In this chapter, we will discuss how to develop strategies for managing conflict and handling difficult conversations, including active listening, effective communication, and constructive problem-solving.
 

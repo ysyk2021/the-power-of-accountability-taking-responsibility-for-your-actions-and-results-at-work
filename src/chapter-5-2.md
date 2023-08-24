@@ -1,5 +1,3 @@
-Developing Strategies for Self-Motivation and Self-Discipline
-==============================================================================================================
 
 Taking ownership of our performance is essential for accountability in the workplace. In this chapter, we will discuss how to develop strategies for self-motivation and self-discipline, including setting personal goals, establishing routines and habits, and managing distractions.
 

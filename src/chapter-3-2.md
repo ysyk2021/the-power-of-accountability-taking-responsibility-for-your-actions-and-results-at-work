@@ -1,5 +1,3 @@
-Creating a Framework for Accountability Based on Shared Values and Priorities
-================================================================================================================================
 
 Developing an accountability framework is critical for taking responsibility for your actions and results in the workplace. In this chapter, we will discuss how to create a framework for accountability based on shared values and priorities.
 

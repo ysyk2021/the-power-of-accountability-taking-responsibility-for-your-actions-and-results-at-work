@@ -1,5 +1,3 @@
-Communicating Clear Expectations with Others
-=======================================================================================
 
 Setting clear goals and expectations is critical for accountability in the workplace. In this chapter, we will discuss how to communicate clear expectations with others, including identifying key stakeholders, setting SMART goals, and creating a plan for achieving those goals.
 

@@ -1,5 +1,3 @@
-Chapter 7: Holding Yourself and Others Accountable
-==================================================
 
 Holding yourself and others accountable is a critical component of accountability in the workplace. In this chapter, we will discuss the importance of holding ourselves and others accountable, strategies for giving and receiving feedback effectively, and creating a culture that values accountability as a core principle.
 

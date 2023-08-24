@@ -1,5 +1,3 @@
-Understanding the Role of Motivation and Mindset in Accountability
-=============================================================================================================================
 
 Accountability is not just about taking responsibility for your actions and results. It's also about understanding the psychological factors that influence our ability to be accountable. In this chapter, we will discuss the role of motivation and mindset in accountability.
 

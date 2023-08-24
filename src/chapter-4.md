@@ -1,5 +1,3 @@
-Chapter 4: Setting Goals and Expectations
-=========================================
 
 Setting clear goals and expectations is a critical component of accountability in the workplace. In this chapter, we will discuss how to develop SMART goals and objectives, communicate clear expectations with others, and use metrics and benchmarks to measure progress and success.
 

@@ -1,5 +1,3 @@
-Creating a Culture that Values Accountability as a Core Principle
-=====================================================================================================================
 
 Creating a culture that values accountability is essential for achieving success in the workplace. In this chapter, we will discuss how to hold yourself and others accountable, including setting clear expectations, providing feedback, and fostering a culture of transparency and honesty.
 

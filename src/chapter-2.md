@@ -1,4 +1,3 @@
-# Chapter 2: Understanding the Psychology of Accountability
 
 Accountability is a complex psychological concept that plays a crucial role in personal and professional development. In this chapter, we will explore the different factors that impact accountability, common barriers to effective accountability, and the role that motivation and mindset play in fostering accountability.
 

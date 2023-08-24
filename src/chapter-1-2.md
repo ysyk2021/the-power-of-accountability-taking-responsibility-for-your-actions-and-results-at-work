@@ -1,5 +1,3 @@
-Historical Perspectives on Accountability Theory and Practice
-========================================================================================================
 
 Accountability is a concept that has been discussed and debated for centuries. In this chapter, we will explore the historical perspectives on accountability theory and practice.
 

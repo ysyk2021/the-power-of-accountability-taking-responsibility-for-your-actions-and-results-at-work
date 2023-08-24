@@ -1,4 +1,3 @@
-# Introduction
 
 Accountability is a crucial component of success in the workplace. It involves taking responsibility for one's actions and results, and being willing to answer for them if necessary. In this book, we explore the power of accountability and how it can help individuals and teams achieve greater success in their work.
 

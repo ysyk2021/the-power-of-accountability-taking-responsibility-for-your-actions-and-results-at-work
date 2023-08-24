@@ -1,5 +1,3 @@
-Defining Accountability and Its Importance in the Workplace
-======================================================================================================
 
 Accountability is a critical component of success in the workplace. It involves taking responsibility for your actions and results, and being willing to be held responsible by others. In this chapter, we will define accountability and discuss its importance in the workplace.
 

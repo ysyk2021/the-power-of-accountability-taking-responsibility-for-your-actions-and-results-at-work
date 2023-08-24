@@ -1,5 +1,3 @@
-Identifying Common Sources of Conflict and Difficult Conversations
-==============================================================================================================================
 
 Identifying common sources of conflict and difficult conversations is an important first step in managing them effectively. In this chapter, we will discuss some common sources of conflict and difficult conversations in the workplace.
 

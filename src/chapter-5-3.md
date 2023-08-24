@@ -1,5 +1,3 @@
-Overcoming Obstacles and Challenges with Resilience and Determination
-======================================================================================================================
 
 Taking ownership of your performance is essential for accountability in the workplace. In this chapter, we will discuss how to overcome obstacles and challenges with resilience and determination, including developing a growth mindset, seeking feedback, and adapting to change.
 
