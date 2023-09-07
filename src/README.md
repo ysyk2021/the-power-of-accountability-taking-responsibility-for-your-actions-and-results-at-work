@@ -10,3 +10,7 @@ Finally, the third section of the book provides practical strategies and tools f
 Overall, this book aims to provide readers with the knowledge and tools necessary to develop accountability in themselves and their teams. By embracing accountability and taking responsibility for their actions and results, individuals and teams can achieve greater success in their work, build stronger relationships, and contribute to a more positive and productive work environment.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

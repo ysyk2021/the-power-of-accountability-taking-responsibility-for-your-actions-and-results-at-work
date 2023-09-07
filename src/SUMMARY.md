@@ -34,3 +34,4 @@
   - [Building resilience and managing stress in challenging situations](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
