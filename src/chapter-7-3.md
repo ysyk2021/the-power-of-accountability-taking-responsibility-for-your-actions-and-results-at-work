@@ -1,5 +1,4 @@
-Chapter 12: Creating a Culture that Values Accountability as a Core Principle
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a culture that values accountability is essential for fostering a high-performing and responsible workplace. In this chapter, we will explore strategies to establish and nurture a culture where accountability is embraced as a core principle.
 

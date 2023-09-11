@@ -1,5 +1,4 @@
-Chapter 7: Developing Strategies for Building and Maintaining Trust with Others
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building and maintaining trust with others is essential for fostering positive relationships, collaboration, and accountability in the workplace. In this chapter, we will explore strategies to effectively develop and sustain trust within professional interactions.
 

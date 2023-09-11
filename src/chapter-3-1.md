@@ -1,5 +1,4 @@
-Chapter 4: Assessing Your Own Accountability Needs and Goals
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Assessing your own accountability needs and goals is a crucial step in taking responsibility for your actions and results at work. In this chapter, we will explore strategies to evaluate and understand your personal accountability, identify areas for improvement, and set meaningful goals to enhance your level of accountability.
 

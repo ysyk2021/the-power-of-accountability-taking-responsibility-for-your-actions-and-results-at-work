@@ -1,5 +1,4 @@
-Chapter 9: Building Resilience and Managing Stress in Challenging Situations
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building resilience and managing stress are essential skills for taking responsibility for your actions and results at work. In this chapter, we will explore strategies to enhance resilience, cope with stress, and maintain accountability in challenging situations.
 

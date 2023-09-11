@@ -1,5 +1,4 @@
-Chapter 8: Creating a Framework for Accountability Based on Shared Values and Priorities
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a framework for accountability based on shared values and priorities is essential for fostering a culture of responsibility and achieving collective success in the workplace. In this chapter, we will explore strategies to establish a framework that aligns individual and organizational values, and prioritize accountability as a guiding principle.
 

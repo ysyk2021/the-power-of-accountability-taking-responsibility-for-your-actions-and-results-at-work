@@ -1,5 +1,4 @@
-Chapter 10: Tailoring Your Approach to Different Types of Tasks and Responsibilities
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Tailoring your approach to different types of tasks and responsibilities is a crucial aspect of accountability in the workplace. In this chapter, we will explore strategies to adapt and customize your approach based on the nature of the task at hand.
 

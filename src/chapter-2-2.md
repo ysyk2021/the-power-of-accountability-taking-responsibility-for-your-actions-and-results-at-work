@@ -1,5 +1,4 @@
-Chapter 8: Identifying Common Barriers to Effective Accountability
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying common barriers to effective accountability is crucial for overcoming challenges and fostering a culture of responsibility in the workplace. In this chapter, we will explore various obstacles that can hinder accountability and strategies to address them.
 

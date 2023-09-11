@@ -1,5 +1,4 @@
-Chapter 8: Encouraging Trust and Credibility through Transparency and Honesty
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Encouraging trust and credibility through transparency and honesty is crucial for fostering strong relationships, effective communication, and a culture of accountability in the workplace. In this chapter, we will explore strategies to promote transparency and honesty, ultimately building trust and credibility within professional interactions.
 

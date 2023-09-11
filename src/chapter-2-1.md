@@ -1,5 +1,4 @@
-Chapter 10: Recognizing the Different Factors That Impact Accountability
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Recognizing the different factors that impact accountability is crucial for understanding the complex dynamics that influence individual and organizational responsibility. In this chapter, we will explore various factors that can either hinder or foster accountability, providing insights into how these factors shape behavior, mindset, and outcomes in the workplace.
 

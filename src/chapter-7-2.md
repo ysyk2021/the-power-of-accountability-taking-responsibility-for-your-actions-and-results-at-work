@@ -1,5 +1,4 @@
-Chapter 8: Developing Strategies for Giving and Receiving Feedback Effectively
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing the skill of giving and receiving feedback effectively is crucial for fostering accountability and personal growth in the workplace. In this chapter, we will explore strategies to enhance your ability to provide constructive feedback and receive it in a productive and impactful manner.
 

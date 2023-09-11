@@ -1,5 +1,4 @@
-Chapter 6: Communicating Clear Expectations with Others
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Communicating clear expectations is essential for fostering accountability, driving productivity, and achieving successful outcomes in the workplace. In this chapter, we will explore strategies to effectively communicate clear expectations with others, ensuring clarity, alignment, and accountability.
 

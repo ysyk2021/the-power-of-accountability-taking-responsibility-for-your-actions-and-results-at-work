@@ -1,5 +1,4 @@
-Chapter 6: Understanding the Importance of Holding Yourself and Others Accountable
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Holding oneself and others accountable is a critical aspect of achieving success and fostering a culture of responsibility in the workplace. In this chapter, we will explore the significance of accountability and provide insights into how it benefits individuals and organizations.
 

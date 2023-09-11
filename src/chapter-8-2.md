@@ -1,5 +1,4 @@
-Chapter 6: Developing Strategies for Managing Conflict and Handling Difficult Conversations
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Managing conflict and handling difficult conversations is an essential skill when it comes to taking responsibility for your actions and results at work. In this chapter, we will explore strategies to effectively navigate conflicts, address challenging situations, and maintain accountability throughout the process.
 

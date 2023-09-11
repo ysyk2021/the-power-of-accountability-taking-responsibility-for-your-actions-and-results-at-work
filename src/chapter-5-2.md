@@ -1,5 +1,4 @@
-Chapter 10: Developing Strategies for Self-Motivation and Self-Discipline
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing self-motivation and self-discipline is crucial for maintaining accountability and achieving success in the workplace. In this chapter, we will explore strategies to cultivate these qualities and harness their power to drive personal and professional growth.
 

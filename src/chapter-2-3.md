@@ -1,5 +1,4 @@
-Chapter 7: Understanding the Role of Motivation and Mindset in Accountability
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Motivation and mindset play a significant role in shaping accountability within individuals and teams. In this chapter, we will explore how motivation and mindset influence accountability, and strategies to cultivate a motivated and accountable mindset in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 6: Understanding the Importance of Taking Ownership of Your Work and Results
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Taking ownership of your work and results is a fundamental aspect of accountability in the workplace. In this chapter, we will delve into the significance of assuming responsibility for your actions and outcomes and explore strategies to foster a strong ownership mindset.
 

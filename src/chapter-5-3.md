@@ -1,5 +1,4 @@
-Chapter 12: Overcoming Obstacles and Challenges with Resilience and Determination
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Overcoming obstacles and challenges is a crucial aspect of accountability. In this chapter, we will explore the power of resilience and determination in the face of adversity and provide strategies to develop these qualities for fostering accountability.
 

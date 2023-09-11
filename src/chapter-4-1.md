@@ -1,5 +1,4 @@
-Chapter 5: Developing SMART Goals and Objectives
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing SMART (Specific, Measurable, Achievable, Relevant, Time-bound) goals and objectives is essential for fostering accountability and driving success in the workplace. In this chapter, we will explore strategies to effectively develop and implement SMART goals and objectives.
 

@@ -1,5 +1,4 @@
-Chapter 7: Identifying Common Sources of Conflict and Difficult Conversations
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying common sources of conflict and difficult conversations is essential for understanding the challenges that can arise in taking responsibility for your actions and results at work. In this chapter, we will explore some typical scenarios and situations that often lead to conflicts and difficult conversations.
 

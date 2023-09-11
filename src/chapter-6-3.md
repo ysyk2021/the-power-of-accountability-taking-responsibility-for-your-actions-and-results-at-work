@@ -1,5 +1,4 @@
-Chapter 9: Handling Mistakes and Failures with Integrity and Accountability
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Handling mistakes and failures with integrity and accountability is a vital aspect of personal and professional growth. In this chapter, we will explore strategies to effectively navigate and learn from mistakes and failures while maintaining a sense of integrity and accountability.
 
